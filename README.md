@@ -1,1 +1,1 @@
-# compiler-NJU-Fuck-
+# compiler-NJU-
